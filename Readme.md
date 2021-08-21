@@ -1,1 +1,0 @@
-## Arnau's blog
